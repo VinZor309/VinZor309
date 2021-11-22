@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @VinZor309
 - 👀 I’m interested in making money
 - 🌱 I’m currently learning making money
-- 💞
+- 💞 I am a better seller than you can imagine
 - 📫 How to reach me I will find you myself
 
 <!---
